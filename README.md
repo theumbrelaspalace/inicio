@@ -1,2 +1,0 @@
-# inicio
-THE UMBRELLA'S PALACE
